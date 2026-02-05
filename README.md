@@ -1,7 +1,3 @@
 ljgjkkhf;guyriyroypiuggg# Case1
-ggg
-jjjj
-;;;
-tttt
-;;;;
-kk
+нотм6гь7бтз9
+hello
